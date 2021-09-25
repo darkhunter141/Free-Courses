@@ -2,7 +2,7 @@
 Link : https://drive.google.com/drive/folders/1q2sOBNU4lPBkwtF1Msl6uCACBV5TUGWD
 
 * ✘ Premium HQ rat pack ✘
-Link : https://mega.nz/file/k90RVawR#w6NzAMZj28FLp3f4t_up28ok5rqnzFNXpi9nTR5dkGU
+Link : https://mega.nz/file/k90RVawR#w6NzAMZj28FLp3f4t_up28ok5rqnzFNXpi9nTR5dkGU </br>
 Zip Pass : @villainhacker
 
 * NETWORK HACKING 2021
