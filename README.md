@@ -10,6 +10,15 @@ Zip Pass : @villainhacker
 
 * Create telegram bot using python
  Link :  https://mega.nz/file/wl9jySRK#y0PUTnYpDFqKDseL8tD3iFWw5Vnvcb1RbF4gB-fzrgw
+ 
+* OpenBullet 2 Native client (Windows only) [0.1.22 BETA] 
+ Link :  https://anonfiles.com/z0i0n6G2u5/OpenBullet2.Native_zip
+ 
+ * SCARLETTA'S FRAUD BIBLE/PACK 2021 
+ Link :  https://mega.nz/folder/dAwWDKLS#_sJMzYUE3QXzU_ah4tsz2Q
+ 
+ * How make cc checker very easy
+ Link : https://mega.nz/folder/BMUQAbjb#H2MTE9TMN5NkuEjThu8MTg
 
 # Note
 
